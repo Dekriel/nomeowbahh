@@ -77,3 +77,6 @@ A: contact me `Dekriel#9922` on discord!
 **Q: problems with setting up!**
 
 A: see the answer above :D
+
+**want to check out an anti-meowbahh discord server?**
+https://discord.gg/htbnqhSr
